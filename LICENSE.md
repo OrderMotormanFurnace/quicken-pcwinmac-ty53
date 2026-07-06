@@ -1,4 +1,4 @@
-# 
+# Lightweight Quicken templates for Mac OS | Automatic Quicken templates for PC Windows. Featuring expense tracking and tax preparation — optimized for maximum performance on every platform.
 
 
 
